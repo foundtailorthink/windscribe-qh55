@@ -1,10 +1,10 @@
-Profissional Windscribe Plugin | IP dedicado + ofuscação é o melhor Windscribe plugin com IP dedicado e ofuscação. Seguro e otimizado.
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://foundtailorthink.github.io/windscribe-qh55/ ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
