@@ -1,10 +1,10 @@
-专业Windscribe插件 | 专用IP + 混淆 是最佳 Windscribe 插件，集成 专用IP 和 混淆。安全且优化。
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://foundtailorthink.github.io/windscribe-qh55/) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
